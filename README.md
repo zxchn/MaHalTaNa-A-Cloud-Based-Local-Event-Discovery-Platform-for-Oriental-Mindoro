@@ -1,0 +1,1 @@
+# MaHalTaNa-A-Cloud-Based-Local-Event-Discovery-Platform-for-Oriental-Mindoro
